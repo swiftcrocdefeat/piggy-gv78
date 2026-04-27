@@ -1,4 +1,4 @@
-
+elite Script for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring infinite resources and auto-farm. Safe and powerful for
 
 
 
